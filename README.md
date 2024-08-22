@@ -12,4 +12,3 @@ Você pode entrar em contato comigo por 📧
 
 carlosfernandesprofessor1@gmail.com
 
-![](https://media.tenor.com/zaOSFjnFVYMAAAAM/beach-day-let%27s-go-to-the-beach.gif)
